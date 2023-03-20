@@ -11,7 +11,3 @@ Telefone de recado: (14) 998512306 (Amauri/Pai);
 Email: luuiizfernando364@gmail.com
 
 ---
-
-Experiencia:
-
-Aluno Unimar ADS
